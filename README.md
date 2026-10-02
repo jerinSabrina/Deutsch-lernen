@@ -1,0 +1,1 @@
+Start learning German and improve my language skills step by step. My goal is to build a strong foundation in vocabulary, grammar, speaking, listening, reading, and writing so that I can communicate confidently in everyday situations.
